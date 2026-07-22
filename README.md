@@ -56,8 +56,8 @@ Aspiring Data Analyst
 
 ### Connect with me
 
-- LinkedIn: https://www.linkedin.com/in/your-linkedin-profile
-- GitHub: https://github.com/yourusername
+- LinkedIn: https://www.linkedin.com/in/pallavi-wable-366108384
+- GitHub: https://github.com/https:/palluwable20-creato
 
 ---
 
